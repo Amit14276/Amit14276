@@ -28,7 +28,7 @@ I am writing in response to your job notification.
 
 I am a BTech in Electronics and Elctrical with an aggregate of 7.0 CGPA marks.
 
-- I have worked on java,sql,HTML project.
+- I have worked on sevral web develoment projects using java,sql,html.
 - I also have a good knowledge of Java, C, HTML, SQL and microcontrollers.
 
 Some of my personal qualities which you may find useful for this role are:
