@@ -37,7 +37,7 @@ Some of my personal qualities which you may find useful for this role are:
 - Adaptable to any kind of environment and can work under pressure.
 - Good analytical and communication skills.
 
-My hobbies are playing Football(I'm playing soccer for a karnataka c division level club), Reading, Sketvhing automobile design.
+My hobbies are playing Football(I'm playing soccer for a karnataka c division level club), Reading, Sketvhing automobile design, Graphic Designer(Codechef of CMRIT and Students Council).
 
 Please find my detailed CV for your consideration. Should you need any more details, please do let me know.
 
